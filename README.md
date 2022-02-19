@@ -1,4 +1,2 @@
 # oh-yeah
 
-hht
-SSSSSSSSSSSSSSSSSS
